@@ -6,4 +6,4 @@
 - 📫 How to reach me:diamondramaria@gmail.com
 
 - More about SAYNA: https://www.sayna.io/
-- Moreb about Me: https://www.linkedin.com/in/diamondra-harisoamanjaka-7a4396218/
+- More about Me: https://www.linkedin.com/in/diamondra-harisoamanjaka-7a4396218/
